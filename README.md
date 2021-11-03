@@ -1,1 +1,1 @@
-Crust is War
+Crust is fckn War
